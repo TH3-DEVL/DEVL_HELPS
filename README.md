@@ -1,5 +1,5 @@
 قنــــــــــــــــــــاة الســورس
-# [help_telp](https://telegram.me/help_telp)
+# [DEVIL_CH](https://telegram.me/DEVIL_CH)
 
 
 *******************************************************************
